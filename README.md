@@ -1,1 +1,1 @@
-# kolekcja-szali.github.io
+# kolekcjaszali.github.io
