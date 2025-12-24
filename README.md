@@ -1,0 +1,1 @@
+# kolekcja-szali.github.io
